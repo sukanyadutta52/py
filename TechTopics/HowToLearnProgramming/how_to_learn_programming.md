@@ -1,4 +1,27 @@
-# Step by step guide on how you can learn programming
+askdalkdjaskdlaksdlakdjlakjdslakjds
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+asdasdads# Step by step guide on how you can learn programming
 
 Below is the 11 step process of how you can start with zero knowledge and no computer science background and master coding skills **for FREE** by following online resources and self study
 
